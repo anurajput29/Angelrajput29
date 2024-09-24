@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
 - Eamil Id- anu292927@gmail.com
+- Email Id- angel1068.be23@chitkarauniversity.edu.in
 - 😄 Pronouns: SHE
 - ⚡ Fun fact: ... My name is Angel even though I am Hindu.
 
